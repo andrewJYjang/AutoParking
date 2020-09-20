@@ -15,10 +15,3 @@ Some devices and parts will be desinged and constructed for the powertrain of A.
 
 
 
-https://youtu.be/boNBr3Yxb4g
-
-
-https://youtu.be/geNUn9fCcLA
-
-
-https://youtu.be/GLzaFB45AKI
